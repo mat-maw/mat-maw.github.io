@@ -8,3 +8,7 @@ Was ihn auszeichnet? Eigentlich nicht viel - er ist ein Bauarbeiter und hilft Le
  * Er hat immer Arbeiterkleidung an
  * Er hat Werkzeuge
  * gelber Helm
+
+Sein Motto:
+> Können wir das schaffen?
+> Yo, wir schaffen das
