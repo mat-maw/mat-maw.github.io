@@ -12,3 +12,5 @@ Was ihn auszeichnet? Eigentlich nicht viel - er ist ein Bauarbeiter und hilft Le
 Sein Motto:
 > Können wir das schaffen?
 > Yo, wir schaffen das
+
+<img src="http://de.web.img3.acsta.net/videothumbnails/17/04/05/11/05/109848.jpg"/>
